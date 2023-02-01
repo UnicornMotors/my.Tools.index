@@ -1,0 +1,1 @@
+- https://www.harborfreight.com/merchandising-promotions/clearance/compact-air-needle-scaler-96997.html
