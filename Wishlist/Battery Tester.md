@@ -1,0 +1,2 @@
+- https://www.harborfreight.com/100-amp-612v-battery-load-tester-61747.html
+- https://www.harborfreight.com/merchandising-promotions/clearance/digital-automotive-battery-analyzer-66892.html
