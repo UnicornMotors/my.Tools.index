@@ -1,1 +1,2 @@
-https://www.harborfreight.com/merchandising-promotions/clearance/large-exhaust-pipe-expander-57184.html
+- https://www.harborfreight.com/merchandising-promotions/clearance/large-exhaust-pipe-expander-57184.html
+- https://www.harborfreight.com/medium-exhaust-pipe-expander-57707.html
